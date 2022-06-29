@@ -1,1 +1,4 @@
-# MercadoTech
+Laura Vanegas.
+Franco Gonzales.
+Braian Redmond.
+
